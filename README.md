@@ -9,7 +9,7 @@ We offer screen connect panels (“monthly subscription ”) ur panel will never
 
 Price : 30$ 
 
-Today I’m launching VIRUS101 scripted SCREEN CONNECT ??
+Today I’m launching HIDDEN9090 scripted SCREEN CONNECT ??
 
 FEATURES :
 
