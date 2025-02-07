@@ -10,7 +10,7 @@ We offer screen connect panels (“monthly subscription ”) ur panel will never
 Price : 30$ 
 
 7 DAYS FREE TRIAL ALSO AVAILABLE
-Today I’m launching HIDDEN9090 scripted SCREEN CONNECT ??
+Today I’m launching HIDDEN9090 scripted SCREEN CONNECT ?? 
 
 FEATURES :
 
