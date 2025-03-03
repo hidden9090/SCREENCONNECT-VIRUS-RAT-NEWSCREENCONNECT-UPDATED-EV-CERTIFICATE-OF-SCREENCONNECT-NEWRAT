@@ -1,15 +1,13 @@
 
 SCREEN CONNECT FOR SALE    
 
-FIRST CHECK THAN PAY
-
+DEMO AVAILABLE
 Why spam on victim logs when u can have access on his whole device !!!
 
 We offer screen connect panels (“monthly subscription ”) ur panel will never get detected or suspended 
 
-Price : 30$   
+Price : 300$   
 
-7 DAYS FREE TRIAL ALSO AVAILABLE
 Today I’m launching HIDDEN9090 scripted SCREEN CONNECT ?? 
 
 FEATURES :
