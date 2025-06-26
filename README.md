@@ -3,7 +3,7 @@ SCREEN CONNECT FOR SALE     :-  FREE DEMO AVAILABLE
 
 It's cracked version so It'll never detect nor suspend also no need to encrypt it .
 
-FREE DEMO AVAILABLE , Please time waster stayaway  
+FREE DEMO AVAILABLE , Please time waster stayaway   
 
 Why spam on victim logs when u can have access on his whole device !!!
 
