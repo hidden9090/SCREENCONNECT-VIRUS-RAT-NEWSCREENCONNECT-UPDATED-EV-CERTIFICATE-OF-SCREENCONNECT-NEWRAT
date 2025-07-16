@@ -1,5 +1,5 @@
- 
-SCREEN CONNECT FOR SALE     :-  FREE DEMO AVAILABLE
+OUR EV CERTIFICATE IS WORKING GOOD TAKE DEMO IF ANY SERIOUS BUYER
+SCREEN CONNECT FOR SALE     
 
 It's cracked version so It'll never detect nor suspend also no need to encrypt it .
 
